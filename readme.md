@@ -9,4 +9,4 @@ Ok, so now while I am in the Master branch, I have merged my changes from the ag
 
 Like, insert some incomplete quotes: 
 
-"**Talent is something that you polish, Instinct is something that you make ----**" - by *Hakyu*
+"**Talent is something that you make bloom, Instinct is something that you polish" - by *Hakyu*
