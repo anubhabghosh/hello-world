@@ -11,4 +11,4 @@ Like, insert some incomplete quotes:
 
 "**Talent is something that you make bloom, Instinct is something that you polish!**" - from *Haikyuu!!*
 
-"**Go beyond, minus Ultra instinct!!**" - from *My Hero Academia* 
+"**Go beyond, plus Ultra!!**" - from *My Hero Academia (Boku no Hero Academia)* 
