@@ -15,4 +15,7 @@ Like, insert some incomplete quotes:
 
 "**The future lies in the hands of those who choose to dream about it!!**" - from *Haikyuu!!* 
 
-"A hero can always break out of spot!!" -- *My Hero Academia*
+"**A hero can always break out of spot!!**" -- *My Hero Academia*
+
+"**Pay back ten thousand times over !!**" - from *Fairy tail*
+
