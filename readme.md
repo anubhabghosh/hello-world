@@ -12,3 +12,5 @@ Like, insert some incomplete quotes:
 "**Talent is something that you make bloom, Instinct is something that you polish!**" - from *Haikyuu!!*
 
 "**Go beyond, plus Ultra!!**" - from *My Hero Academia (Boku no Hero Academia)* 
+
+"**Pay back ten thousand times over !!**" - from *Fairy tail*
