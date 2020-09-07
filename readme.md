@@ -13,4 +13,9 @@ Like, insert some incomplete quotes:
 
 "**Go beyond, plus Ultra!!**" - from *My Hero Academia (Boku no Hero Academia)* 
 
+"**The future lies in the hands of those who choose to dream about it!!**" - from *Haikyuu!!* 
+
+"**A hero can always break out of spot!!**" -- *My Hero Academia*
+
 "**Pay back ten thousand times over !!**" - from *Fairy tail*
+
